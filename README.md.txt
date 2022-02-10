@@ -1,0 +1,1 @@
+É um curso bem elaborado e explicado, mas aparentemente requer um certo entendimento prévio. Até o momento estou conseguindo acompanhar bem, apesar de nunca ter pego nessas ferramentas antes.
